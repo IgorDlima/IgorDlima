@@ -17,4 +17,4 @@
  </div>
 
 
-Apaioxonado desde criança por tecnologia, procurando sempre aprender cada vez mais. 
+Apaioxonado desde criança por tecnologia. Atualmente no 3º periodo no curso de Engenharia da Computação  
